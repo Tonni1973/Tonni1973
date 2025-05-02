@@ -1,4 +1,5 @@
-## Stay Foolish 👋
+## Stay Foolish 🤔
+## Stay Hungry 🤤
 
 <!--
 **Tonni1973/Tonni1973** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
