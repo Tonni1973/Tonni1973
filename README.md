@@ -1,1 +1,2 @@
-![Lazy](https://media.giphy.com/media/3oEjI6SIIHBdRxXI40/giphy.gif](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2trcGRtbmhicngweTRzNjVrZXQweTJxODFjcmVrM2R5b3J1bnc5diZlcD12MV9naWZzX3NlYXJjaCZjdD1n/26ufnwz3wDUli7GU0/giphy.gif)
+![Lazy](https://media.giphy.com/media/26ufnwz3wDUli7GU0/giphy.gif)
+
